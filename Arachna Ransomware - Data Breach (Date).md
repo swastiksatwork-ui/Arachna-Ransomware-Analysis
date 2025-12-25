@@ -1,4 +1,4 @@
-Dark Web Link :-  http://ptyctpveqfevlukjw4hpdh6nb5oiemq6ek6tuuvxbtrfghvuutvscsid.onion/
+Dark Web Link :-  http://ptyctp......................onion/
 
 Client Compromised - https://kiranakartsg.com/
                    https://clinica-armstrong.es/
